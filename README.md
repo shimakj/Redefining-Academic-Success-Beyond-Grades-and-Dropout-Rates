@@ -1,0 +1,2 @@
+# Redefining-Academic-Success-Beyond-Grades-and-Dropout-Rates
+we will explore alternative indicators of success, such as personal growth, resilience, adaptability, and alignment with individual potential. Our objective is to identify patterns and predictors that highlight not only academic achievement but also broader dimensions of learning that can better prepare students for real-world challenges.
